@@ -1,4 +1,4 @@
-# 
+# Get the ultimate dex sniper bot with automatic dex sniper bot Executor | sandwich-attack-protection + front-running-detection. Featuring sandwich-attack-protection and
 
 
 
